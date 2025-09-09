@@ -25,7 +25,7 @@
 ----
 ![***I LOVE THIS PICTURE!***](https://images6.alphacoders.com/127/1275600.jpg)
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
-##### ***Madam Ping*** *ੈ✩‧₊˚
+##### ***Teyvat*** *ੈ✩‧₊˚
 °❀⋆.ೃ࿔*:･°❀⋆.ೃ࿔*:･
 
 ----
